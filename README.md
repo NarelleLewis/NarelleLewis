@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NarelleLewis
-- 👀 I’m interested in teaching Englsih, content writing, copy editing, proofreading, translation. 
+- 👀 I’m interested in languages, art, and travel. 
 - 🌱 I’m currently learning how to set up a YouTube channel for English lessons.
 - 💞️ I’m looking to collaborate on teaching Englsih, content writing, copy editing, proofreading, translating (Spanish/French to English).
 - 📫 How to reach me ...
